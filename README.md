@@ -2,4 +2,4 @@
 - 👀 Estou interessada em... programação
 - 🌱 Atualmente estou aprendendo a... programar
 - 💞️ Estou em colaboração com... SESI/SENAI
-- 📫 Moro em Maceió-AL
+- 📫 Moro em.. Maceió-AL
